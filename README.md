@@ -1,1 +1,1 @@
-# paramsingh96.github.io
+# param.github.io
